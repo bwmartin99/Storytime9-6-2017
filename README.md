@@ -1,1 +1,2 @@
 "# Storytime9-6-2017" 
+There was a tower that towered just beyond the bridge that bridged east and west, held aloft by polar magnets that refused to touch one another like they had drama betwixt them. the tower was a building that was straight as an arrow. It was home to a bug that was a flamboyant star. He passed the time by staring at the clock.
